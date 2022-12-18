@@ -1,0 +1,3 @@
+- 👋 Hi, I’m PALAK NITIN ZADE
+- 🌱 I’m currently pursuing diploma in ARTIFICIAL INTELLIGENCE &MACHINE LEARNING
+- at GOVERNMENT POLYTECNIC, NAGPUR.
